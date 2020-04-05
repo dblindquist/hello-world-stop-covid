@@ -1,4 +1,4 @@
 # hello-world-stop-covid
-Hi Community
+Hi Community,
 Isolate and stay safe!
 and VOTE!
